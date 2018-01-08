@@ -8,3 +8,4 @@ do more excise!
 to be an advanced coder!
 thx
 how to exit
+colorful life!
