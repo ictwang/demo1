@@ -9,3 +9,5 @@ to be an advanced coder!
 thx
 how to exit
 struggle for a better life!
+colorful life!
+
